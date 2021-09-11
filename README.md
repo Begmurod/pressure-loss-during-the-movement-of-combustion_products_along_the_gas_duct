@@ -1,0 +1,1 @@
+# pressure-loss-during-the-movement-of-combustion_products_along_the_gas_duct
